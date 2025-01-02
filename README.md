@@ -1,2 +1,2 @@
 aspiring game dev.
-heyitshartley@gmail.com
+kodyhartley27@gmail.com
